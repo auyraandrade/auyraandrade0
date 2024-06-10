@@ -1,0 +1,2 @@
+# auyraandrade0
+currículo
